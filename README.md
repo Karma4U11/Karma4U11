@@ -5,6 +5,4 @@
 -
 -
 -
-- I am trans
-- and lesbian
-- plz no judge
+-
